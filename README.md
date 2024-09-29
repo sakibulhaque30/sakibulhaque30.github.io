@@ -1,2 +1,4 @@
 # sakibulhaque30.github.io
-My personal website!
+Welcome to my personal website!
+The site is under construction!
+Please Visit Blog Site: https://thesakibulhaque.blogspot.com/
